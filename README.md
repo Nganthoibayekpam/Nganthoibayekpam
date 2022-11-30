@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nganthoiba Ayekpam
-- 👀 I’m interested in coding (obviously,that's why i'm here) and psychology (I really wish i could read people's minds)
+- 👀 I’m interested in coding (obviously, that's why i'm here) and psychology (I really wish i could read people's minds)
 - 🌱 I’m currently learning python and html (little cliche but yeah)
 - 💞️ I'm looking forward to collaborate with my brother (he's a pro in JS and html) catch him @shaunakayekpam
 - 📫 How to reach me: probably on discord (@nakul #8992) or just drop an email (you would find it in my website)
