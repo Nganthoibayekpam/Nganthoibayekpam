@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Nganthoib Ayekpam
+- 👀 I’m interested in coding (obviously,that's why i'm here)
+- 🌱 I’m currently learning python and html 
+- 💞️ I'm looking forward to collaborate with my brother (he's a pro in JS and html) catch him @shaunakayekpam
+- 📫 How to reach me: probably on discord (@nakul #8992) or just drop an email (you would find it in my website)
+- 🤗 I may look introverted but i love to talk and socialize
+- ⁉️ wanna know more about me? head over to my website (it's currently a work in progress.. so you have to wait :)
