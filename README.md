@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning python and html-css (little cliche but yeah)
 - 💞️ I'm looking forward to collaborate with my brother (he's a pro in JS and html) catch him @shaunakayekpam
 - 📫 How to reach me: probably on discord or just drop an email (you would find it in my website)
-- 🤗 I may look introverted but i love to talk and socialize
+- 🤗 I may look introverted but i love to talk and but i suck in socializing.
 - 👨🏻 pronouns: he/him
 - ⁉️ wanna know more about me? head over to my website (it's currently a work in progress.. so you have to wait until then :)
