@@ -1,8 +1,8 @@
 - 👋 Hi, I’m Nganthoiba Ayekpam
-- 👀 I’m interested in coding (obviously, that's why i'm here) and psychology (I really wish i could read people's minds)
+- 👀 I’m interested in coding (obviously, that's why i'm here)
 - 🌱 I’m currently learning python and html-css (little cliche but yeah)
 - 💞️ I'm looking forward to collaborate with my brother (he's a pro in JS and html) catch him @shaunakayekpam
 - 📫 How to reach me: probably on discord or just drop an email (you would find it in my website)
-- 🤗 I may look introverted but i love to talk and but i suck in socializing.
+- 🤗 I may look introverted and i suck at socializing, but i love to talk though.
 - 👨🏻 pronouns: he/him
 - ⁉️ wanna know more about me? head over to my website (it's currently a work in progress.. so you have to wait until then :)
