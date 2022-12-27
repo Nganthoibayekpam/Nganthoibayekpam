@@ -5,4 +5,4 @@
 - 📫 How to reach me: probably on discord or just drop an email (you would find it in my website)
 - 🤗 I may look introverted and i suck at socializing, but i love to talk though.
 - 👨🏻 pronouns: he/him
-- ⁉️ wanna know more about me? head over to my website (it's currently a work in progress.. so you have to wait until then :)
+- ⁉️ wanna know more about me? you know where to reach me.
