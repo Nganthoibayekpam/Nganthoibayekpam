@@ -6,3 +6,4 @@
 - 🤗 I may look introverted and i suck at socializing, but i love to talk though.
 - 👨🏻 pronouns: he/him
 - ⁉️ wanna know more about me? you know where to reach me.
+- 🎶 sel, sab and taytay all time everytime, loving mcrae songs at the moment as well ;)
